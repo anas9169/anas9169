@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @anas9169
-- 👀 I’m interested in an web dev internship
+- 👀 I’m interested in a web dev internship
 - 🌱 I’m currently learning web dev and engineering
 - 💞️ I’m looking to collaborate on projects and start-ups
 - 📫 How to reach me - 9169703373
